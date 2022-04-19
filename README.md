@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 HOW TO REACH ME ...
 -
-😎pozdro wariacik
+😎
 
 <!---
 szymonpolsl/szymonpolsl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
