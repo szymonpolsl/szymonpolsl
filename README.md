@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @szymonpolsl
-      1️⃣Jedna noga🦶 ulica 🛣️
-      2️⃣Druga czerwony🟥 dywan
-      🤱Mamo bardzo proszę🙏 wybacz🙏 
-      Ale twój syn🧒 to bandyta 🥷🪓 
+    1️⃣Jedna noga🦶 ulica 🛣️
+    2️⃣Druga czerwony🟥 dywan
+    🤱Mamo bardzo proszę🙏 wybacz🙏 
+    Ale twój syn🧒 to bandyta 🥷🪓 
 - 👀 I’m interested in ...
 - 🌱 I’m CURRENTLY LEARNING ...
 - 💞️ I’m looking to collaborate on ...
